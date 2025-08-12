@@ -1,3 +1,5 @@
+#Grieving the loss if innocence
+
 Hey guys. So today, I want to talk about grieving the loss of your innocence. So, **I'm a university student**, and lately, I've kind of been feeling lost and overwhelmed just trying to navigate through the adult world. And my core struggle is dealing with the fact that **people live in completely different and almost alien realities**.
 
 So, for example, I'll listen to a podcast about a grad student who applied to over 140 internships and only getting two offers. And I feel that intense anxiety and pressure of that professional grind. And then, minutes later, I'll hear the interview with an artist talking about how a one-night stand unlocked a new understanding of intimacy and then inspired their new album.
