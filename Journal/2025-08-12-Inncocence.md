@@ -1,4 +1,4 @@
-#Grieving the loss if innocence
+# Grieving the loss if innocence
 
 Hey guys. So today, I want to talk about grieving the loss of your innocence. So, **I'm a university student**, and lately, I've kind of been feeling lost and overwhelmed just trying to navigate through the adult world. And my core struggle is dealing with the fact that **people live in completely different and almost alien realities**.
 
