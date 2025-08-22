@@ -1,0 +1,1 @@
+I realized just how much longer my history of dealing with emotions using food is then I ever realized. Ever since puberty, I've had trouble socializing and fitting in with the people around me. I've always 
