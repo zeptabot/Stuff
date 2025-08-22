@@ -1,1 +1,22 @@
+# EXERCISE 1-A
+My most recent binge took place in my dorm room last Wedensday night (so 3-4 days ago). I was sleep deprived that day, so intead of commiting to a rigid study schedule I set up for myself, I spent the whole day binge watching YouTube and then engaged in PMO in the evening. I guess I felt ashamed and disappointed in myself although I'm not sure. Anyway I felt like shit and I suddenly had a massive craving for strawberries that I couldnt get over with. So I went downstairs, bought a pound of strawberries and ate them all. 
+Then some how I decided I wanted to binge again and fast on the second day so I went to a diffderent convieince store, bough a bottle of protein shake, a cup of keto ice cream and a box of cream cheese and I ate them all. It felt so intensely satisfying. I'm so relieved and fulfilled and forgot about all my problems and is just riding the pleasure. But after a while I felt despair and disgust knowing that I'll be more skinny fat, and the chances of me having a good body, being financially independent & comfortable, and being virtuous and loved are more slim then ever.
+
+A (Prompt): Having zero productivty the entire day, submitting to the desire of bingewatching YouTube and PMO
+B (Emotions): Ashamed and disapponited in my lack of discipline, worried about how I'm going to get through my demanding undergrad, get an intership, and get into a decent grad program / a decent job.
+C: Attempt to avoid / escape the emotional experience
+D (Problem behavior): Binged on strawberries, then protein shake, cream cheese and keto ice cream.
+E (Temporary Relief): Numbed, blissful and satisfied from the sweet and fatty sensations
+E (Long term): Uglier body, far away from my desired identity & lifestyle, disconnected, hating myself and the rest of the world more than ever.
+
+
+# EXERCISE 1-B
+I've been more aware of just how much anxiety, self-disappointment, and body-image-related self-hatred & loneliness I've been experiencing.
+On one hand, I've been socially isolated for the past year, and I think it genuinely damaged my brain circuits and put me in a state of anxiety.
+On the other hand, I'm genuinely worried about how I'm ever going to commit to a decent, regular job if I can't even break out of this cycle of destructive behaviours and return to a baseline level of productivity. My parents' business is facing serious challenges, and I'm pessimistic about their ability to push through it, or even just to generate enough revenue to sustain our current middle-class lifestyle, plus my expenses in Canada. I feel like if I dont get a decent job after I gradate or get in a top Masters program I'm going to end up on the streets or some low-paid, 4000K RMB job in China because I know nobody and our family has zero social capital. 
+I've also been in a mode of emotional invalidation due to my Stoic approach to life for the past 2 years.
+I think recognizing these emotions and connecting to them could help me regulate my binges.
+
+
+# EXERCISE 1-C
 I realized just how much longer my history of dealing with emotions using food is then I ever realized. Ever since puberty, I've had trouble socializing and fitting in with the people around me. I always felt isolated and hated everything about myself. I hated that I was fat, that for some reason my personality is obnoxious, that my father's own immature and stupid superiority complex have made be a socially disbaled fuck like they are, and how I always felt underserving in the supposed "Elite" class in middle school because of my relatively shitty grades. Things got worse in senior high when I was literally treated like shit as if I'm a retatrded clown. I turned to the comfort of food and numbed myself with the satisfaction from it. And the reason i would do that goes back even longer. My mom bought and made junk food, like preo, custard tarts and pizza, etc. as a sign of showing love and affection. But we didn't have a good relationship otherwise. So my predispositioned vulnerability to food might not neceessarily be genetic, but a result of my parental issues. Also I've never leearned to deal with anger properly because of my Dad's smashing and beatings. I hate arguing with people and I've sworn to never drink alchohol. Both because of my Dad. Thinking about my childhood made me realize how difficult it has been to deal with chronic loneliness and anger. Recogonizing these cues have enabled me to not fall into the old patterns so often.
