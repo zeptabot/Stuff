@@ -11,4 +11,6 @@ In order to live as long and healthy as possible on this Earth, I will stop bing
 
 In order to be actually alive, I will turn to this program **first** instead of turning to food as way of coping with emotional distress.
 
+I commit.
+
 Signed: 徐静泊   Date: 2025-8-29
